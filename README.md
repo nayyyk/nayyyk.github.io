@@ -1,0 +1,2 @@
+# nayyyk.github.io
+segredo 
